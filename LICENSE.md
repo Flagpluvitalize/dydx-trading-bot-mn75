@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant Automation Script for sushiswap trading bot | MEV-strategies + gas-optimization, the #1 sushiswap trading bot. Includes MEV-strategies and
 
 
 
